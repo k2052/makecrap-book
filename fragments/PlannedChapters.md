@@ -1,0 +1,9 @@
+- Creativity by Necessity
+- Trends are Constraints
+- Inspiration is Energy
+- Why You Suck
+- What They Forgot
+- Design Is Empathy
+- What made the Beetles great
+  - Permission to Create
+  - Iteration
